@@ -1,16 +1,15 @@
 # Crunchy Frog
 
 ## Ingredients
-* 1 Raw, unboned, real, dead frog
+* 1 crunchy raw unboned real dead frog, dew-picked
 * finest quality spring water
-* milk chocolate
+* Swiss quintuple smooth treble cream milk chocolate
 * glucose
 
 
 ## Steps
-1. Have frog dew-picked,
-2. flown from Iraq
-3. cleansed in the spring water
-4. lightly kill
-5. seal in succulent Swiss quintuple smooth treble cream milk chocolate envelope
-6. lovingly frost with glucose
+1. Fly frog in from Iraq.
+2. Cleanse in the spring water.
+3. Lightly kill frog.
+4. Seal it in milk chocolate envelope.
+5. Lovingly frost with glucose.
