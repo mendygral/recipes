@@ -13,3 +13,7 @@
 3. Lightly kill frog.
 4. Seal it in milk chocolate envelope.
 5. Lovingly frost with glucose.
+
+## Credits
+
+1. Courtesy of Monty Python's Flying Circus
